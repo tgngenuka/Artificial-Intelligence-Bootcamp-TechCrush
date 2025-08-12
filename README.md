@@ -1,1 +1,1 @@
-# Artificial intelligence Coding Journey -TechCrush
+Artificial Intelligence Coding Journey @TechCrush
