@@ -1,1 +1,1 @@
-Artificial Intelligence Coding Journey @TechCrush
+Artificial Intelligence Bootcamp @TechCrush
